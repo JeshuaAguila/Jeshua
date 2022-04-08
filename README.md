@@ -1,0 +1,2 @@
+# Jeshua
+Bitcoin mining 
